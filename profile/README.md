@@ -1,1 +1,1 @@
-renamed to @tombrk
+renamed to [@tombrk](/sh0rez)
