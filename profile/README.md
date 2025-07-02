@@ -1,1 +1,1 @@
-renamed to [@tombrk](/sh0rez)
+renamed to [@tombrk](https://github.com/tombrk)
